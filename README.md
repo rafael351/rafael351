@@ -4,4 +4,5 @@
 - gosto de jogar bola 
 - sou muito extrovertido e gosto de ajudar as pessoas 😼🦘📷
 
-![](https://media1.tenor.com/m/2pnoi_0OwGkAAAAC/sleepy-powerpuff-girls.gif)
+![](https://media1.tenor.com/m/jYmyTYPUg5sAAAAC/tired-so.gif)
+- entre em contato comigo favaro.rafael@escola.pr.gov.br
